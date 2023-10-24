@@ -9,5 +9,3 @@
 -𝑀𝑒 𝑠𝑖𝑔𝑎𝑚 𝑛𝑜 𝑖𝑛𝑠𝑡𝑎: @𝑣𝑖𝑛𝑛𝑖𝑧𝑖𝑛.𝑗𝑠
 
 
-![]()
-https://media.tenor.com/tbAlzAsBICsAAAAC/funny-laughing.gif
